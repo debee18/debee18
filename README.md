@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @debee18
-- 👀 I’m a graphic designer, entrepreneur and social media account manager
+- 👀 I’m a graphic designer and an entrepreneur 
 - 🌱 I’m currently learning software development
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
